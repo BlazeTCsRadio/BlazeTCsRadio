@@ -40,3 +40,7 @@ uhhhhhhhhhh c+h at anytime unless the person i'm cuddling with says no
 any ships EXCEPT the obvious ones
 
 i thinks thats all??
+
+˖.✦ ݁˖
+
+22 swagalicious blazers
