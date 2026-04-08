@@ -15,7 +15,7 @@
 
 <p align="center" 
  
-<a  ˚₊‧꒰ა <a href="https://fionatfsradio.straw.page/">Strawp</a> ✦ <a href="https://guns.lol/fionatfsradio">Guns.lol</a> ✦ <a href="https://rewritersradio.atabook.org/">ATAbook</a> ໒꒱ ‧₊˚
+<a  ˚₊‧꒰ა <a href="https://fionatfsradio.straw.page/">Strawp</a> ✦ <a href="https://guns.lol/blazetcsradio">Guns.lol</a> ✦ <a href="https://rewritersradio.atabook.org/">ATAbook</a> ໒꒱ ‧₊˚
 
 <p align="center" 
 。𖥔　a real scourge all the same 𓂋 ᭡
