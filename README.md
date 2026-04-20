@@ -33,7 +33,7 @@ fandoms: sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsake
 
 other stuff that needs to be said uh
 
-my name is Blaze but i usually go by Blaire and Razzmatazz
+my name is Blaze but i usually go by Myth (that's right, name change)
 
 uhhhhhhhhhh c+h at anytime unless the person i'm cuddling with says no
 
