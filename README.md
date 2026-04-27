@@ -39,6 +39,8 @@ uhhhhhhhhhh c+h at anytime unless the person i'm cuddling with says no
 
 any ships EXCEPT the obvious ones
 
+PLEASE follow my alt as well or at least check it out - but ig i can't force you so uh
+
 i thinks thats all??
 
 ˖.✦ ݁˖
